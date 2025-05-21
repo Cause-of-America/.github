@@ -1,4 +1,4 @@
-#Cause of America
+# Cause of America
 
 The role of Cause of America is to enable, facilitate and support citizen grassroots action to restore trust in local elections.  It’s about building a network of individuals, organizations, and partners who can learn from each other and work together to solve the most pressing issue facing our nation **“free and fair elections.”**
 
